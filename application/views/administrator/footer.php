@@ -1,0 +1,1 @@
+<strong>©️ 2023 - <a target='_BLANK' href="https://www.upnjatim.ac.id/"> UPN VETERAN JAWA TIMUR</a>| <a href="https://github.com/adaamxrb/">Adham Roy Bhafiel</a></strong> All rights reserved.
